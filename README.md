@@ -1,4 +1,4 @@
-# mikayla nft profiles picture
+# mikayla nft profiles pictures
 - 0xmikayla (1).jpg
 - 0xmikayla (2).jpg
 - 0xmikayla (3).jpg
